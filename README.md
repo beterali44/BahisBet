@@ -12,7 +12,7 @@ Bu GitHub projesi, bahis makinalarının üretimi ve çalışma prensibini detay
 
 3. **Teknolojik İlerlemeler:** Bahis endüstrisindeki son teknolojik gelişmeler ve bahis makinalarının gelecekteki potansiyeli.
 
-4. **Deneme Bonusu Veren Sitelerin Etkisi:** Bahis makinalarıyla ilgili [deneme bonusu veren siteler](dogankemer.com)in nasıl bir etkileşimde bulunduğu ve bu sitelerin bahis endüstrisindeki rolü.
+4. **Deneme Bonusu Veren Sitelerin Etkisi:** Bahis makinalarıyla ilgili [deneme bonusu veren siteler](dogankemer.com) in nasıl bir etkileşimde bulunduğu ve bu sitelerin bahis endüstrisindeki rolü.
 
 ## Nasıl Katkıda Bulunabilirsiniz
 
